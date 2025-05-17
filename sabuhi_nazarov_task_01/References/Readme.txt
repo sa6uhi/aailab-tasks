@@ -1,0 +1,1 @@
+I added sources that i used here as a pdf format for convenience, because books and some research papers are paid. I split the parts from books (because original size of books is big) that i red and used when i wrote research paper and other materials.
